@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CelestialCurios
+- 👀 I’m interested in Python coding, creating cute games, and learning how to translate schoolwork into coding!
+- 💞️ I’m looking to collaborate on fun game projects,
+- 📫 Reach me on twt (PM please!) @CelestialCurios 
